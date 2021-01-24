@@ -222,6 +222,6 @@ BY USING SERVICE OR OTHER SERVICES PROVIDED BY US, YOU ACKNOWLEDGE THAT YOU HAVE
 
 27. Contact Us
 
-Please send your feedback, comments, requests for technical support by email: jeremiahkimutai3@gmail.com.
+Please send your feedback, comments, requests for technical support by email: SkiskiMode@gmail.com.
 
 These Terms of Service were created for Finapp.com by PolicyMaker.io on 2022-06-10
